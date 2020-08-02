@@ -1,2 +1,2 @@
 # hello-world
-this is my firs repository
+hi my friends i hate school i love freedom
